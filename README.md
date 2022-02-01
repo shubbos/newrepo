@@ -7,4 +7,4 @@ shruti piduri from s-piduri
 fjdlsfjsklfdsfk
 lalalalallalalalal!!!!!f
 
-this is from my laptop i am partner 1
+this is from the desktop
